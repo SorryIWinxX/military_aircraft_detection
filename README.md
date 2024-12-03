@@ -38,6 +38,6 @@ Modelos usados:
 ## Links
 
 - Diapositivas: https://www.canva.com/design/DAGX0z9dh-M/Zi7L_Aj_sfF2lLbKwneYrg/view?utm_content=DAGX0z9dh-M&utm_campaign=designshare&utm_medium=link&utm_source=editor
-- Video:
+- Video: https://youtu.be/1tGzWTztSp4
 
 
